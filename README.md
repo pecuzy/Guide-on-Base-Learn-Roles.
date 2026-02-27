@@ -1,1 +1,1 @@
-data analysis and computer processing
+data analysis and computer process
