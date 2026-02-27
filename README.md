@@ -1,1 +1,1 @@
-animal husbandary data socialization and computerte
+animal husbandary data socialization and computer
