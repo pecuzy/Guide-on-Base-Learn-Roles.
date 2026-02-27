@@ -1,1 +1,1 @@
-data analysis and computer digital resolution
+data analysis and computer digita
