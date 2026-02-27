@@ -1,1 +1,1 @@
-succient airdrop e
+succient airdrop 
