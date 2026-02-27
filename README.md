@@ -1,1 +1,1 @@
-succient airdrop and zama
+succient airdrop and
