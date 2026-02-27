@@ -1,1 +1,1 @@
-succient airdrop era
+succient airdrop er
