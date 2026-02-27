@@ -1,1 +1,1 @@
-succient airdrop solutio
+succient airdrop soluti
