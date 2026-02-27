@@ -1,1 +1,1 @@
-isolation data analysis and rea
+isolation data analys
