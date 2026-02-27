@@ -1,1 +1,1 @@
-succient airdrop sol
+succient airdrop so
