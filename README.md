@@ -1,1 +1,1 @@
-succient airdrop and
+succient airdrop tara
