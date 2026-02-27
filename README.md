@@ -1,1 +1,1 @@
-isolation data analysis the
+isolation data analysis solution
