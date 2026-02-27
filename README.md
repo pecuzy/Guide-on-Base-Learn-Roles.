@@ -1,1 +1,1 @@
-isolation data analys
+isolation data analyses
