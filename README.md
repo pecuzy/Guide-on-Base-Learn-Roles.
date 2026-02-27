@@ -1,1 +1,1 @@
-isolation data analysis solution require
+isolation data analysis solution requir
