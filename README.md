@@ -1,1 +1,1 @@
-isolation data analysis solution food sout
+isolation data analysis solution food
