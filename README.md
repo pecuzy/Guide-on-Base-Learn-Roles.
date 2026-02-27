@@ -1,1 +1,1 @@
-animal husbandary data sociali
+animal husbandary data social
