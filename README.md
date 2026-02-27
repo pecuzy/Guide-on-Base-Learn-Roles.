@@ -1,1 +1,1 @@
-succient airdrop data
+succient airdrop dat
