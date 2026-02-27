@@ -1,1 +1,1 @@
-data analysis and computer digita
+data analysis and computer digit
